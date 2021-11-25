@@ -1,1 +1,1 @@
-# A life has been created
+# The life is in process to become completely ready 
